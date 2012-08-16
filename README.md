@@ -1,4 +1,10 @@
 jamesbpollackDNA
 ================
+james b. pollack
+my DNA scan 
 
-my DNA scan from 23andme
+with analysis from 23andme & promethease
+
+2012
+
+creative commons license
